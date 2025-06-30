@@ -1,1 +1,0 @@
-# ResolveNow-Your-platform-for-online-complaints
